@@ -8,6 +8,9 @@ I love this world &&
 
 <b>It's never too late to start.</b>
 
+"别再继续等待 一直观望徘徊 <br>
+把征途中的星辰大海全都浪费在接受命运的安排" <br>
+
 ![](https://komarev.com/ghpvc/?username=justinpieperp&color=green)
 
 
