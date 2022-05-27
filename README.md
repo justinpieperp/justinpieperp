@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 I'm Justin Pieper...p. The last p is for nothing only because that username Justin Pieper has been taken. <br>
-I'm starting a new life every day.<br>
+I start a new life every day.<br>
 I feel so grateful that I have the best parents and grandparents in my world("best" is meaning only to me, I believe everyone has their own best families!).<br>
 My biggest wish is their health and happiness.<br>
 I love this world &&
